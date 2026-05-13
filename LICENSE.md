@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with new Shotcut for PC | Shotcut for Windows Extension | real-time-preview + LUT-support, the #1 extension. Includes
 
 
 
